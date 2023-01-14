@@ -1,0 +1,1 @@
+# otoolz-pinterest-privacy-policy
